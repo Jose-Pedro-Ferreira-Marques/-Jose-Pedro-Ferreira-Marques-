@@ -1,2 +1,2 @@
-# -Jose-Pedro-Ferreira-Marques-
+# Jose-Pedro-Ferreira-Marques-
 My personal repository
